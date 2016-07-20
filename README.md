@@ -1,2 +1,2 @@
 # hello-world
-Saying hello in a special way 
+Entrepreneur and product strategist. I'm Driven by innovation and great team work. 
